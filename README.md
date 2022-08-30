@@ -1,1 +1,1 @@
-# Tarea-1-Pr-tesis-Equipo-Electr-nica-LMV-N4
+# Tarea-1-Protesis-Equipo-Electronica-LMV-N4
